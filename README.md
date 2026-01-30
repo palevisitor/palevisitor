@@ -2,4 +2,4 @@
 <p align="center">
 <img src= "https://i.postimg.cc/mrmN2LSL/toffee-finger.gif ">
 <p align="center">
-⊹₊ ˚‧︵‿₊୨୧₊‿︵‧ ˚ ₊⊹
+on the spectrum (obviously) 
